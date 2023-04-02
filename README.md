@@ -1,1 +1,1 @@
-# education.nyomaa
+https://education.nyomaa.org/
